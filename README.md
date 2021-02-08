@@ -9,4 +9,5 @@ I really love playing video games.I am also interested in watching movies.Anothe
 I wish i could study data science or artificial intelligence.I rather I can continue my higher education abroad.
 ![A very great university](https://bostonglobe-prod.cdn.arcpublishing.com/resizer/0X4Zj8qc_B4pLRdeQLaQB8nvcPM=/1024x0/arc-anglerfish-arc2-prod-bostonglobe.s3.amazonaws.com/public/GANOYFEWLFHDDKXT3AXF4OACXY.jpg)
 How to contact me 
-+ [telegram me](https://t.me/hellokhavier)
++ [telegram](https://t.me/hellokhavier)
++ [whatsapp](https://wa.me/<+989198908521>)

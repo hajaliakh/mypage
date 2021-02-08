@@ -8,3 +8,5 @@ I really love playing video games.I am also interested in watching movies.Anothe
 ##### My goals 
 I wish i could study data science or artificial intelligence.I rather I can continue my higher education abroad.
 ![](https://images.app.goo.gl/JVURZQWhJD2qm8Hb9)
+How to contact me 
++ [telegram me](https://t.me/hellokhavier)
